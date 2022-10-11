@@ -17,4 +17,4 @@ Earl of Dalhousie - 1848-1856
 
 
 
-The Key lies where it all started, when the company fought and set rule in Bengal.
+The Key lies where it all started, when East India Company fought and set rule **in Bengal.**
